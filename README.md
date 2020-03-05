@@ -13,3 +13,6 @@ https://finance.yahoo.com/news/bitcoin-adoption-rising-ngo-sector-154326951.html
 
 
 How China is using tech to make charities transparent https://forkast.news/tech-is-making-chinese-charities-more-transparent/
+
+
+https://www.gsb.stanford.edu/sites/gsb/files/publication-pdf/csi-report-2019-blockchain-social-impact.pdf
