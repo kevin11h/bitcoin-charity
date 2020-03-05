@@ -6,3 +6,7 @@ https://finance.yahoo.com/news/bitcoin-adoption-rising-ngo-sector-154326951.html
 https://www.coininsider.com/how-crypto-intersects-with-charity/
 
 https://finance.yahoo.com/news/bitcoin-adoption-rising-ngo-sector-154326951.html
+
+
+
+https://www.youtube.com/watch?v=1F2cQ_mfvaM
