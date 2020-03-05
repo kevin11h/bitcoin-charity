@@ -9,4 +9,7 @@ https://finance.yahoo.com/news/bitcoin-adoption-rising-ngo-sector-154326951.html
 
 
 
-https://www.youtube.com/watch?v=1F2cQ_mfvaM
+# Jimmy Song https://www.youtube.com/watch?v=1F2cQ_mfvaM
+
+
+How China is using tech to make charities transparent https://forkast.news/tech-is-making-chinese-charities-more-transparent/
